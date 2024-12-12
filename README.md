@@ -5,9 +5,9 @@ I'm really awkward and sorta hate small talk so I appreciate lots if you start t
 
 I DO say kys, suggestive jokes, and I can't read social ques so sorry </3
 
-int - my interests, related to whatever im wearing~ Cuddle me!!
+**int** - my interests, related to whatever im wearing~ Cuddle me!!
 
-dni if - >18 , you think being freaky in public is funny, ZIONISTS (surprisingly common)
+**dni if** - >18 , you think being freaky in public is funny, ZIONISTS (surprisingly common)
 
 
 <!--
