@@ -1,4 +1,9 @@
-## " BURY ME AT MAKEOUT CREEK
+## " BURY ME AT MAKEOUT CREEK . "
+
+int - my interests, related to whatever im wearing~ Cuddle me!!
+
+dni - if you think being freaky in public is funny, liek FREAKY FREAKY
+
 
 <!--
 **graveyardsanctuary/graveyardsanctuary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
