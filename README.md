@@ -1,4 +1,4 @@
-## Hi there 👋
+## " BURY ME AT MAKEOUT CREEK
 
 <!--
 **graveyardsanctuary/graveyardsanctuary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
