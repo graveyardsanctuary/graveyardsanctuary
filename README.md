@@ -1,5 +1,7 @@
 ## " BURY ME AT MAKEOUT CREEK . "
 
+![Untitled111_20241215112254](https://github.com/user-attachments/assets/96c5af02-35a8-4eed-87b1-76434d302a1e)
+
 ### BYI
 I'm really awkward and sorta hate small talk so I appreciate lots if you start the conversation lol
 
